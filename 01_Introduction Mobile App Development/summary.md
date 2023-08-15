@@ -1,0 +1,1 @@
+Hari ini paada tanggal 14 saya belajar mandiri terkait section 01 dengan materi Introduction Mobile App Developer dan telah mengerjakan tugas bagian pilihan ganda, summary. kemudian mengikuti live mentoring dengan materi Introduction Mobile App Developer berdama mentor kak azka
